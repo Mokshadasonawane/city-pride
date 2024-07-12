@@ -1,1 +1,1 @@
-# city-pride
+# city-pride hotel
